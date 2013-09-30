@@ -1,5 +1,3 @@
 Part three
 
-Shirley is still in her armored carrier, zooming off to battle.
-
-
+Shirley is collapsed on the controls of the turret of her tank. She is passed out from shock.
